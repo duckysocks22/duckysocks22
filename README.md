@@ -1,1 +1,1 @@
-@duckysocks22, they/them
+@duckysocks22, she/him
